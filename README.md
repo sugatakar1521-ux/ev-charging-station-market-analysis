@@ -1,4 +1,6 @@
 # Market Overview and Recent News Integration
+![EV Charging Station Market (1)](https://github.com/user-attachments/assets/e0ddb801-4118-44ca-95ca-e83fe3956e98)
+
 
 **Global Expansion and Geopolitical Drivers**
 
